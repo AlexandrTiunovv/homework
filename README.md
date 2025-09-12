@@ -1,3 +1,1 @@
-,G///proverka svazi
 
-hghghg
